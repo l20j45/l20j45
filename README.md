@@ -17,7 +17,9 @@
 🐼Pueden encontrarme en 
 
 twitter: https://twitter.com/l20j45
+
 facebook: https://www.facebook.com/l20j45
+
 linkedin: https://www.linkedin.com/in/daniel-alejandro-rojas-2a906040/
 
 
